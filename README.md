@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @arshad-afk
+- 👀 I’m interested in cybersecurity, artificial intelligence, and building innovative solutions.
+- 🌱 I’m currently learning more about cybersecurity and exploring the world of AI/ML as part of my BCA degree with a specialization in AI and Machine Learning.
+- 💞️ I’m looking to collaborate on projects related to AI-driven applications, cybersecurity tools, and trading ideas.
+- 📫 How to reach me: LinkedIn : https://www.linkedin.com/in/arshad-ansari-06189528b/ or email me at ansari.arshad2027@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I’m passionate about entrepreneurship and enjoy exploring the intricacies of crypto trading!
